@@ -1,0 +1,1 @@
+Hi. We are young people who want create development community - if you want join to this community you can join to our discord: https://discord.gg/Ks3DhjzJgn On this github we will upload our projects, but if you want buy website, plugin minecraft and something other you can create ticket on our discord (channel: price) 
